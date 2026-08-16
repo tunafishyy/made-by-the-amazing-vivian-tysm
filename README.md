@@ -10,7 +10,8 @@ i want to dye me to such a color. ”
 DYE , megurine luka .
 
 hi hi im dino!! please feel free to int with me IF i don't have "dni" (such as dniuf, dniuid, etc). i miiight be a stupid shy chud if i dont know you that well </3
-i love megurine luka shes amazing
+
+i love megurine luka shes amazing mwah
 
 
 ![](https://github.com/user-attachments/assets/83b34a2c-f8fb-4848-b186-2d4f3964514e) 
