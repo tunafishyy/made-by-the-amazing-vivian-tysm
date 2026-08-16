@@ -9,7 +9,7 @@ DYE , megurine luka .
 
 ![](https://github.com/user-attachments/assets/ef2209ef-6678-4344-be58-9e61697dc17e) 
 
-![](https://github.com/user-attachments/assets/dddf373f-7307-47a2-85f6-f81d05197a3e) hi hi im dino!!!!!!!!!! please feel free to int with me IF i don't have "dni" (such as dniuf, dniuid, etc). i miiight be a stupid shy chud if i dont know you that well </3
+![](https://github.com/user-attachments/assets/dddf373f-7307-47a2-85f6-f81d05197a3e) hi hi im dino!! please feel free to int with me IF i don't have "dni" (such as dniuf, dniuid, etc). i miiight be a stupid shy chud if i dont know you that well </3
 i love megurine luka shes amazing
 
 
