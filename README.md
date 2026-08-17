@@ -9,7 +9,7 @@ i can grow up if it dyes to good people color.
 i want to dye me to such a color. ”
 DYE , megurine luka .
 
-hi hi im dino!! please feel free to int with me IF i don't have "dni" (such as dniuf, dniuid, etc). i miiight be a stupid shy chud if i dont know you that well </3
+hi hi im dino!! please feel free to int with me IF i don't have "dni" (such as dniuf, dniuid, etc) in my name. i miiight be a stupid shy chud if i dont know you that well </3
 
 i love megurine luka shes amazing mwah
 
